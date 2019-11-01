@@ -27,7 +27,8 @@ GPA: 3.81
 
 ## RELATED EXPERIENCE
 
-**PwC (PricewaterhouseCoopers)**, Philadelphia, PA                                                              January 2018 - May 2018 **Externship  **
+**PwC (PricewaterhouseCoopers)**, Philadelphia, PA                                                              January 2018 - May 2018 
+**Externship**
 
 - Collaborated with several professionals within the company
 - Acquired information about business management, time management, financial techniques
@@ -36,14 +37,15 @@ GPA: 3.81
 
 ## LEADERSHIP
 
-**Economics Challenge Club                                                                                    ** September 2018 – September 2019
+**Economics Challenge Club** September 2018 – September 2019
 
 **Member**
 
 - Participated in challenge competitions
 - Attended meetings
 
-**Future Business Leaders of America** , Souderton Area High School                              September 2015 - June 2018 **Member**
+**Future Business Leaders of America** , Souderton Area High School                              September 2015 - June 2018 
+**Member**
 
 - Engaged in volunteer opportunities
 - Organized and managed several events
