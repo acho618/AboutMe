@@ -9,13 +9,13 @@ Computer science and business major seeking opportunities to gain experience. Ex
 
 ## EDUCATION
 
-**Lehigh University** , Bethlehem, PA                                                                                                                 May 2023
+**Lehigh University** , Bethlehem, PA                                                                                                                 May 2023
 
 College of Business and Economics
 
 ** **
 
-**Souderton Area High School** , Souderton, PA                                                                                                June 2019
+**Souderton Area High School** , Souderton, PA                                                                                                June 2019
 
 Honors: National Honors Society
 
@@ -43,7 +43,7 @@ GPA: 3.81
 - Participated in challenge competitions
 - Attended meetings
 
-**Future Business Leaders of America** , Souderton Area High School                              September 2015 - June 2018 **Member  **
+**Future Business Leaders of America** , Souderton Area High School                              September 2015 - June 2018 **Member**
 
 - Engaged in volunteer opportunities
 - Organized and managed several events
@@ -62,4 +62,4 @@ GPA: 3.81
 
 **REFERENCES**
 
-● References upon request
+- References upon request
